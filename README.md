@@ -28,7 +28,7 @@ I am a dedicated and detail-oriented professional with over 14 years of experien
 - Post Graduate Diploma in Computer Applications (PGDCA)
 
 ## Contact Me
-- 📧 Email: your.email@example.com
-- 🔗 LinkedIn: [linkedin.com/in/yourlinkedinprofile](https://linkedin.com/in/yourlinkedinprofile)
+- 📧 Email: kondajyothi07@gmail.com
+- 🔗 LinkedIn: [linkedin.com/in/yourlinkedinprofile](https://www.linkedin.com/in/konda-jyothi-933bba249/)
 
 Feel free to reach out for collaborations or discussions on improving business processes and leveraging technology for efficiency!
